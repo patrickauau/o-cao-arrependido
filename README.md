@@ -1,4 +1,4 @@
-# O cão arrependido *curva-se
+# O cão arrependido *curva-se*
 
 Volta o cão arependido, com suas orelhas tão fartas, com seu osso ruído e com o rabo entre as patas
 <br>Volta o cão arependido, com suas orelhas tão fartas, com seu osso ruído e com o rabo entre as patas
